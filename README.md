@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **coding concepts**
 
-- 📫 How to reach me **shiba@gmail.com**
+- 📫 How to reach me **shibaktk@gmail.com**
 
 - ⚡ Fun fact **I luv solving problems**
 
